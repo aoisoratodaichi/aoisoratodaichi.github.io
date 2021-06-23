@@ -1,0 +1,1 @@
+# aoisoratodaichi.github.io
